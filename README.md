@@ -1,0 +1,1 @@
+# Semesterprojekt_HS26_MarcSiegfried_SeverinSiegrist
